@@ -1,2 +1,1 @@
-thssshohfso
-this is a fuck
+today is a good day
